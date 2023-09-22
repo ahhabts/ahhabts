@@ -1,16 +1,43 @@
-### Hi there 👋
+### boas vintas ao meu perfil
 
-<!--
-**ahhabts/ahhabts** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome e anna paula borges 
 
-Here are some ideas to get you started:
+- estou estudando na [Alura](https://www.alura.com.br)
+- estou me desenvolvendo na linguagem javaScriot
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ### vocẽ entrar em contato comigo
+
+paludetta.borges08@escola.pr.gov.br
+
+@borges08
+
+|[](https://midia.tenor.com/i7lltDaTPtuAAAAC/a.borges08.gif)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
